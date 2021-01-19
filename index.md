@@ -1,9 +1,6 @@
 
- <figure>
-   <figcaption>Victoria Vayner</figcaption>
-</figure> 
 
-# Victoria Vayner 
+# Viki Vayner 
 ## MBA Candidate at Zicklin Baruch 
 
 
