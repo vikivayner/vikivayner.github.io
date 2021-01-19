@@ -1,3 +1,8 @@
+
+ <figure>
+   <figcaption>Victoria Vayner</figcaption>
+</figure> 
+
 # Victoria Vayner 
 ## MBA Candidate at Zicklin Baruch 
 
