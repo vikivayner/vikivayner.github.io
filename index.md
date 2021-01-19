@@ -1,4 +1,4 @@
-
+# Viki Vayner
 
 ## MBA Candidate at Zicklin Baruch 
 
