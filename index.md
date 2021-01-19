@@ -1,4 +1,6 @@
-## Victoria Vayner 
+# Victoria Vayner 
+## MBA Candidate at Zicklin Baruch 
+
 
 [Linked in](https://www.linkedin.com/in/victoriavayner/)
 
