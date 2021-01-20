@@ -1,5 +1,8 @@
 
+
 ## MBA Candidate at Zicklin Baruch 
+
+---
 
 
 [LinkedIn](https://www.linkedin.com/in/victoriavayner/)
