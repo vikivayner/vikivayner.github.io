@@ -1,6 +1,6 @@
 
 
-## MBA Candidate at Zicklin Baruch 
+## MBA Graduate from Zicklin Baruch 
 
 ---
 
